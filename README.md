@@ -1,4 +1,13 @@
-### Hi there 👋
+# welcome to the playground
+# everyone wants to be my enemy
+# hj eu to de puxa pena 
+# no tengo dinero 
+# ghostbusters
+# full bodied
+# jojo pose 
+# evangelion automotivo 
+# mr.sexobeat
+# LOST IN PARADISE 
 
 <!--
 **chaublinho123/chaublinho123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
